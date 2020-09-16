@@ -1,2 +1,3 @@
 # electric-colourful-octupus
-Place to store ideas, resources and the like
+This is for the psychedelic society
+We are about promotion of discussion of aspects of psychedelic culture and the psychedelic experience.
